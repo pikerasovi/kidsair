@@ -79,9 +79,10 @@ https://www.emaze.com/@ALRCFRRWZ/recycling-art---kids-air?autoplay&fbclid=IwAR0x
 https://openedtech.ellak.gr/robotics2022/kids-a-i-r-artificial-intelligence-recycling-3o-nip-gio-argiroupolis/
 
 Νηπιαγωγείο Κεντριού:
-
+https://openedtech.ellak.gr/robotics2022/kids-a-i-r-artificial-intelligence-recycling-nipiagogio-kentriou/
 
 Νηπιαγωγείο Όσσας:
-
+https://openedtech.ellak.gr/robotics2022/kids-a-i-r-artificial-intelligence-recycling-nipiagogio-ossas/
 
 29ο Νηπιαγωγείο Σερρών:
+https://openedtech.ellak.gr/robotics2022/kids-a-i-r-artificial-intelligence-recycling-29o-nip-gio-serron/
